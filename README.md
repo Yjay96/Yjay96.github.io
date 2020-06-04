@@ -1,2 +1,2 @@
-# HXXXXXXH.github.io
+# Yjay96.github.io
 个人网站
